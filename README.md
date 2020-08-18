@@ -1,4 +1,4 @@
 
-# [abyssal](https://pajwojskin.s-ul.eu/MFOtsBUy)
-![](https://osu.ppy.sh/ss/14036926/3709)
+# Kodama-karory (https://belfast.s-ul.eu/1pagMXMh)
+![](https://osu.ppy.sh/ss/15411399/c4d2)
 
