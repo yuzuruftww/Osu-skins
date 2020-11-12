@@ -10,4 +10,6 @@ Will be updating when I find something I am playing on for more than a month i g
 
 # [mixed](https://belfast.s-ul.eu/uZrFyb7E)
 ![](https://osu.ppy.sh/ss/15411395/b0ae)
-# [mona v.1](https://belfast.s-ul.eu/DcLH1MK9)
+
+# [mona v.1.1](https://belfast.s-ul.eu/Lw1AC3y5)
+![](https://osu.ppy.sh/ss/15797888/4e48)
