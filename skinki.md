@@ -16,3 +16,6 @@ Will be updating when I find something I am playing on for more than a month i g
 
 # [mona v.1.1 blue cursor updated](https://www.mediafire.com/file/8q7j6jo337za2v9/Mona_v.1.1_updated_blue.osk/file)
 ![](https://osu.ppy.sh/ss/16121442/2492)
+
+# [Rina Tennoji edit mona gameplay](https://www.mediafire.com/file/5jm9rymd7j1x9gu/-_rina.osk/file)
+![](https://osu.ppy.sh/ss/17657543/25c4)
