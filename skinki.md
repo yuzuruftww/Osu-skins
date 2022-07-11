@@ -19,3 +19,6 @@ Will be updating when I find something I am playing on for more than a month i g
 
 # [Rina Tennoji edit mona gameplay](https://www.mediafire.com/file/5jm9rymd7j1x9gu/-_rina.osk/file)
 ![](https://osu.ppy.sh/ss/17657543/25c4)
+
+# [Rina Tennoji edit differnt hitcircle](https://www.mediafire.com/file/0c2elg32n10yvo0/-++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++rina.osk/file)
+![](https://osu.ppy.sh/ss/17965982/b8f3)
