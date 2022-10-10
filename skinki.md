@@ -22,3 +22,6 @@ Will be updating when I find something I am playing on for more than a month i g
 
 # [Rina Tennoji edit different hitcircle](https://www.mediafire.com/file/0c2elg32n10yvo0/-++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++++rina.osk/file)
 ![](https://osu.ppy.sh/ss/17965982/b8f3)
+
+# [sprejteditlekki](https://www.mediafire.com/file/98wlsna3uy32xu6/sprejteditlekki.osk/file)
+![](https://osu.ppy.sh/ss/18182070/4b07)
